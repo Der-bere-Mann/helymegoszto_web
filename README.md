@@ -1,1 +1,0 @@
-# helymegoszto_web
